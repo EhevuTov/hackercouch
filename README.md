@@ -12,4 +12,6 @@ It’s like CouchSurfing, except CouchSurfing sucks. So does AirBnB, hostels and
 
 ## Crash my couch
 
-* couch(spare bed, actually) in Chicago, IL, USA, far north-side (1hr public transportation ride to downtown)
+* spare bed in Chicago, IL, USA, far north-side (1hr public transportation ride to downtown)
+* we have cats (in case you're allergic)
+* only people I know well or have a recommendation from someone I know
